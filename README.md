@@ -1,4 +1,4 @@
-- 👋 Hi, Mr_Dark
+- 👋 Hi, am Mr_Dark
 - ❎ I am just a student, not programmer
 - 👀 I’m interested in python
 - 🌱 I’m currently learning nothing
