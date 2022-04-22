@@ -1,0 +1,7 @@
+- 👋 Hi, Mr_Dark
+- ❎ I am just a student, not programmer
+- 👀 I’m interested in python
+- 🌱 I’m currently learning nothing
+- 📫 How to reach me https://www.youtube.com/channel/UCnti7B0HaFE0izlHKwZMn8A
+- 🐚 Contact me +6281327441039 [whatsapp]
+- 🥴 I'm above 12 but under 15
