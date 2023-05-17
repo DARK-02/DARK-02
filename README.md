@@ -6,4 +6,3 @@
 - 🤨 Tiktok https://www.tiktok.com/@lyzexz
 - 🎉 Discord CometSploit#7136
 - 🐚 Contact me +6281327441039 [whatsapp]
-- 🥴 I'm above 12 but under 15
